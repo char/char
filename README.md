@@ -6,7 +6,7 @@ computer multimedia artist
 lowercase aesthetic  
 also a software developer.
 
-you can use [she/her](https://pronoun.is/she) or [bun/buns](https://pronoun.is/bun/bun/buns/buns/bunself) for me.
+you can use [she/her](https://pronouns.within.lgbt/she) or [bun/buns](https://pronouns.within.lgbt/bun) for me.
 
 i speak english, french, spanish &amp; korean.
 
